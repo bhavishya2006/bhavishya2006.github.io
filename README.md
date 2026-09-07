@@ -1,1 +1,0 @@
-# bhavishya2006.github.io
